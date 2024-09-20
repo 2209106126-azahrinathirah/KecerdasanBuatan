@@ -1,0 +1,2 @@
+- Nama : Andi Zahrina Athirah Ahmad
+- NIM : 2209106126
